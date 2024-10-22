@@ -2,4 +2,4 @@
 geologicalmap 
 
 ---
-contact me if you want the tiff for the map *wink wink*
+contact me if you want the tiff for the msia geological map *wink wink*
